@@ -1,3 +1,1 @@
-yo yo yo
-
-peanut
+Great shoes!
